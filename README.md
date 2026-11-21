@@ -11,7 +11,7 @@ have earned it, a week after launch — as five quantiles per trophy.
 
 Entry for the make.fun bounty
 [gta6-trophy-rarity-forecast-01](https://make.fun/bounty/gta6-trophy-rarity-forecast-01)
-by [@maungzy](https://make.fun) ($250 over 20 paid places).
+by [Zynth Labs](https://make.fun) ($250 over 20 paid places).
 
 ## Program
 
